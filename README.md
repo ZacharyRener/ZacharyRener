@@ -1,2 +1,2 @@
-### independent web developer
+### Web Engineer @ 10up
 https://www.zacharyrener.com/
